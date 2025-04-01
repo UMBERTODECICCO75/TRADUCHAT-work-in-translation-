@@ -1,2 +1,2 @@
 # TRADUCHAT
- comunicazione 
+ telecomunicazione & traduzione 
